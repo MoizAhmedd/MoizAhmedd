@@ -1,4 +1,3 @@
 ### No highs, no lows, only doge.
 
-![](https://i.imgur.com/dIviXvJ.jpg =150x150)
-
+<img src="https://i.imgur.com/dIviXvJ.jpg" width="200"/>
