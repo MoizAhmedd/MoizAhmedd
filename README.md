@@ -1,2 +1,2 @@
-### No highs no lows, only doge.
+### No highs, no lows, only doge.
 ![](https://i.imgur.com/dIviXvJ.jpg)
