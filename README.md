@@ -1,2 +1,2 @@
-### Live View of you getting open sourced.
+### No highs no lows, only doge.
 ![](https://i.imgur.com/dIviXvJ.jpg)
