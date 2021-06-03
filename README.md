@@ -1,3 +1,4 @@
-### No highs, no lows, only doge.
+20 y/o builder.
 
-<img src="https://i.imgur.com/dIviXvJ.jpg" width="400" height="400"/>
+AMC to the moon 🚀 
+
